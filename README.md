@@ -1,9 +1,3 @@
----
-title: Leibnizzzzzz's Self-Introduction
-date: 2022-02-28 17:38:54
----
-
-***
 
 ## 关于作者
 
